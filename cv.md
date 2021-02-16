@@ -1,11 +1,11 @@
 ## Lisa Ann Alverson
 
 ### Fayetteville, Arkansas 72703
-### e-mail: lisa.alverson@gmail.com
+
 
 
 ### Credentials and Licensure
-• Registered Nurse, Arkansas, license #R89304
+• Registered Nurse, Arkansas
 
 • Basic Life Support Certification (BLS for Healthcare Providers)
 
@@ -26,7 +26,7 @@ Language)
 
 2007–2011 Pediatric Clinic Nurse, Southern Indiana Pediatrics, Bloomington, IN
 
-2006–2007 irst Grade Teacher, Rogers Elementary School, Bloomington, IN
+2006–2007 First Grade Teacher, Rogers Elementary School, Bloomington, IN
 
 2004−2006 Second Grade Teacher, Spicewood Elementary School, Austin, TX
 
@@ -47,7 +47,7 @@ Language)
 
 1998    Cum Laude graduate, Grand Valley State University
 
-1995–1998   Dean's List, Grand V alley State University
+1995–1998   Dean's List, Grand Valley State University
 
 
 ### Training and Continuing Education
