@@ -51,10 +51,10 @@ Language)
 
 
 ### Training and Continuing Education
-2015 National Association of School Nurses Annual Conference, Philadelphia, PA 2013 School Emergency Triage Training for School Nurses
+- 2015 National Association of School Nurses Annual Conference, Philadelphia, PA 2013 School Emergency Triage Training for School Nurses
 
-2013 Healthy Lungs and Skin Training for School Nurses
+- 2013 Healthy Lungs and Skin Training for School Nurses
 
-2012 Arkansas Department of Health Vision and Hearing Screening Certification 2012 Arkansas Department of Health Scoliosis Screening Certification
+- 2012 Arkansas Department of Health Vision and Hearing Screening Certification 2012 Arkansas Department of Health Scoliosis Screening Certification
 
-2012 New School Nurse Conference, Little Rock, AR 2012 Obesity Prevention and Education for School Nurses
+- 2012 New School Nurse Conference, Little Rock, AR 2012 Obesity Prevention and Education for School Nurses
